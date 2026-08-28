@@ -10,6 +10,17 @@ i play ponytown. this is info about that. ok.
 
 this is gongagaI MEAN THE ACE ATTORNEY area
 
+im basically ONLY in safe server 1. ok.
+i mostly just play pt to talk w oomfs join hangouts or make ponies.
+i also clip people. a lot. heres my top 3
+
+> 1. [Man Up * fict-kin] I will pluck out each hair follicle from your scalp, Cody.
+> 2. [don't try s--cide! /lyrc] here's how i'll torture you, victiniz: 1. the marrow furnace, i'll inject
+> 3. [Feddi] .... Bonnie, go left, foxy, you know what to do! And Chica.... Be yourself.. together we are... FNAF!
+
+<img width="736" height="500" alt="ae674ed40157feef3b3c91f361632984" src="https://github.com/user-attachments/assets/c5f527ab-cefe-4ee0-8adc-7a003f80087c" />
+
+
 # >> do NOT touch unless oomf. ok.
 
 i just don't like it. ok.
