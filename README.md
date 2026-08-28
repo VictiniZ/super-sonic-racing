@@ -36,6 +36,6 @@ self explanatory methinks
 
 ## me? gongaga
 
-ok byw
+ok if you're done reading this look at my pronouns.cc NOW!!!!!! /hj it has preferred names. nd stuff. ok. go look at that AND!!!!! MY STRAWPAGE!!!!!! OK!!!!!
 
 <img width="736" height="715" alt="fc88c54bc3eb35ab9f522b27161ad150" src="https://github.com/user-attachments/assets/7e05ccdd-50da-4690-974e-f2d1f2fea9d2" />
