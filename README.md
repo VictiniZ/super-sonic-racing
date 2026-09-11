@@ -2,23 +2,26 @@
 
 YOOOOOOOOOO im victiniz
 
-i play ponytown. this is info about that. ok.
+i play ponytown. this is info about that. ok. (gay ahh ↓)
 
-# >> i mostly hang out in the ace attorney area or in hangout parties (occasionally guess the cosplays.... i NEVER join rps. ok)
+<img width="2000" height="494" alt="15bfc5043ecb156f46e86d9407500fcb" src="https://github.com/user-attachments/assets/ed4b9c56-a302-4ebe-8520-16686899b7d9" />
+
+
+# >> i mostly hang out in the ace attorney area hangout parties (occasionally guess the cosplays.... i NEVER join rps. ok) or the lmk area maybe
 
 <img width="600" height="600" alt="Screenshot_20260826-091507" src="https://github.com/user-attachments/assets/cb46e13e-3873-4d9f-b255-33f0f64b76d6" />
 
 this is gongagaI MEAN THE ACE ATTORNEY area
 
 im basically ONLY in safe server 1. ok.
-i mostly just play pt to talk w oomfs join hangouts or make ponies.
+i mostly just play pt to talk w oomfs join hangouts or make ponies
 i also clip people. a lot. heres my top 3
 
 > 1. [Man Up * fict-kin] I will pluck out each hair follicle from your scalp, Cody.
 > 2. [don't try s--cide! /lyrc] here's how i'll torture you, victiniz: 1. the marrow furnace, i'll inject
 > 3. [Feddi] .... Bonnie, go left, foxy, you know what to do! And Chica.... Be yourself.. together we are... FNAF!
 
-<img width="736" height="500" alt="ae674ed40157feef3b3c91f361632984" src="https://github.com/user-attachments/assets/c5f527ab-cefe-4ee0-8adc-7a003f80087c" />
+<img width="1998" height="500" alt="ae674ed40157feef3b3c91f361632984" src="https://github.com/user-attachments/assets/c5f527ab-cefe-4ee0-8adc-7a003f80087c" />
 
 
 # >> do NOT touch unless oomf. ok.
