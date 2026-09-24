@@ -14,7 +14,8 @@ i play ponytown. this is info about that. ok. (gay ahh ↓)
 this is gongagaI MEAN THE ACE ATTORNEY area
 
 im basically ONLY in safe server 1. ok.
-i mostly just play pt to talk w oomfs join hangouts or make ponies
+i mostly just play pt to talk w oomfs join hangouts or make cosplays.
+
 i also clip people. a lot. heres my top 3
 
 > 1. [Man Up * fict-kin] I will pluck out each hair follicle from your scalp, Cody.
@@ -35,10 +36,12 @@ i just don't like it. ok.
 
 self explanatory methinks
 
-<img width="600" height="337" alt="55859c9d3a9669dbaac15b416dedd3eb" src="https://github.com/user-attachments/assets/d09d0dd2-73df-4d8f-b8a8-2c00806e71b0" />
+<img width="800" height="270" alt="Tumblr_l_177958214190636" src="https://github.com/user-attachments/assets/c453f9b1-0692-465e-a0fe-f1f2f1a97ee9" />
+
 
 ## me? gongaga
 
 ok if you're done reading this look at my pronouns.cc NOW!!!!!! /hj it has preferred names. nd stuff. ok. go look at that AND!!!!! MY STRAWPAGE!!!!!! OK!!!!!
 
-<img width="736" height="715" alt="fc88c54bc3eb35ab9f522b27161ad150" src="https://github.com/user-attachments/assets/7e05ccdd-50da-4690-974e-f2d1f2fea9d2" />
+<img width="736" height="736" alt="ff390870b2b9cd855a271222f4afbdc6" src="https://github.com/user-attachments/assets/8c3be7e0-b2e6-4837-aebf-f1a07ac9e51b" />
+
